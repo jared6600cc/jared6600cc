@@ -1,1 +1,2 @@
-![XDZT](https://github.com/jared6600cc/jared6600cc/assets/135299193/e7253f52-c6de-4298-9c54-fcd8dd2780f6)
+![UPUb](https://github.com/jared6600cc/jared6600cc/assets/135299193/09ca27dd-b5c0-449c-b743-c02d76ee4500)
+![1ILH](https://github.com/jared6600cc/jared6600cc/assets/135299193/25f72101-280e-4f14-ad6b-518c28124736)
