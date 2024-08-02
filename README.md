@@ -1,1 +1,1 @@
-![SxC](https://github.com/jared6600cc/jared6600cc/assets/135299193/86c6c658-8c3d-4b2f-bca5-cae61e4f2894)
+![215466](https://github.com/user-attachments/assets/4a66934e-6c5a-40b1-b1fd-4e97327e2770) 
